@@ -29,6 +29,6 @@ Have an idea? Connect with us to turn your vision into reality.
 - **🇵🇰 Pakistan**: Karachi | Lahore
 
 **🔗 Follow Us**
-- [📘 Facebook](#) | [📸 Instagram](#) | [💼 LinkedIn](#) | [🎨 Behance](#)
+-  [📸 Instagram](#) | [💼 LinkedIn](#) | [🎨 Behance](#)
 
 © 2024 Fleekbiz. All Rights Reserved.
