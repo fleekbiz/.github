@@ -24,11 +24,4 @@ Have an idea? Connect with us to turn your vision into reality.
 - 📧 Email: mail@fleekbiz.com
 - 📞 Phone: (877) 560-5556
 
-**🌍 Offices**
-- **🇺🇸 USA**: Houston, TX (Head Office)
-- **🇵🇰 Pakistan**: Karachi | Lahore
-
-**🔗 Follow Us**
--  [📸 Instagram](#) | [💼 LinkedIn](#) | [🎨 Behance](#)
-
-© 2024 Fleekbiz. All Rights Reserved.
+© 2025 Fleekbiz. All Rights Reserved.
